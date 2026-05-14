@@ -1,4 +1,4 @@
-#  
+#  rivals Script advanced is the best rivals Script, featuring private server access and no cooldown. Safe and powerful for all your needs.
 
 
 
